@@ -37,3 +37,8 @@ Students will become well rounded after having gathered an assortment of differe
 Outcome Objective
 
 The design of this education focuses on efficiency and progressiveness. This education style is meant to give students the fundamental skills to go above and beyond with their education. The “tracks” within the curriculum allows for students to use what they have learned and apply it in a way that they enjoy best, as their final. This creates for a consistently challenging but also exciting and rewarding learning atmosphere. The final projects are also meant to further nurture students true understanding of the course as they require additional learning, beyond what was learned in the classroom, to complete them.
+
+
+![image 1] (https://static1.squarespace.com/static/50452b74e4b0991b726c6b43/t/5898bef9ff7c50e6c71a671d/1486405631490/?format=1500w)
+
+! [image 2] (https://static1.squarespace.com/static/50452b74e4b0991b726c6b43/t/5898beb759cc68bf0471c0c7/1486405333117/?format=1500w)
